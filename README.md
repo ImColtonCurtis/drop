@@ -17,8 +17,4 @@
     Complete each level by successfully getting the ball into the glass cup to unlock the next level.
     Keep playing and improving your skills to tackle more challenging levels and achieve high scores!
 
-## Contact Us
-
-If you have any questions, feedback, or issues with the game, please contact us at nonothinggames@gmail.com. We'd be happy to assist you and make your gaming experience as enjoyable as possible.
-
 Get ready to drop the ball and take on the challenge of navigating past crazy obstacles into the glass cup! Good luck and have fun playing drop by No Nothing!
