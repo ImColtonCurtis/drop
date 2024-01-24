@@ -17,4 +17,4 @@
     Complete each level by successfully getting the ball into the glass cup to unlock the next level.
     Keep playing and improving your skills to tackle more challenging levels and achieve high scores!
 
-Get ready to drop the ball and take on the challenge of navigating past crazy obstacles into the glass cup! Good luck and have fun playing drop by No Nothing!
+Get ready to drop the ball and take on the challenge of navigating past crazy obstacles into the glass cup! Good luck and have fun playing drop by Colton Curtis!
