@@ -22,9 +22,3 @@
 If you have any questions, feedback, or issues with the game, please contact us at nonothinggames@gmail.com. We'd be happy to assist you and make your gaming experience as enjoyable as possible.
 
 Get ready to drop the ball and take on the challenge of navigating past crazy obstacles into the glass cup! Good luck and have fun playing drop by No Nothing!
-
-## Get the Game
-
-App Store: https://apps.apple.com/us/app/drop/id1659480609
-
-Google Play Store: https://play.google.com/store/apps/details?id=com.nonothing.drop
